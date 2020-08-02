@@ -48,7 +48,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://is.gd/WxESUf"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://wnj2raququu.xjugr.press/?name=ogQuit.aspx&key=wofwccpubzgfxshz&from=gye&tag=362112"> * * * 我要三退 * * * </a></b></div>
 
 ---
 
