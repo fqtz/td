@@ -30,7 +30,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://is.gd/a6E4aa"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://wnjobr2aququu.xjugr.press/?name=ogQuit.aspx&key=wofwccpubzgfxshz&from=gye&tag=362461"> * * * 我要三退 * * * </a></b></div>
 
 ---
 <br/>
